@@ -6,4 +6,4 @@
 2. Мне 24 года.
 3. Я учусь в Нетологии.
 
-![](https://koldunov.com/byvayut-li-fotografii-bez-obrabotki/)
+![](https://koldunov.com/wp-content/uploads/2021/03/06.jpg)
